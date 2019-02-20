@@ -1,1 +1,1 @@
-arakawa is a good man
+arakawa is a best man
