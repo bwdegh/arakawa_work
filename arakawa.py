@@ -1,1 +1,1 @@
-arakawa is a cool man
+arakawa is a clear man
