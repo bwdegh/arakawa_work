@@ -1,1 +1,1 @@
-arakawa is a big man
+arakawa is a nice man
